@@ -5,8 +5,6 @@
 
 - 💬 Ask me about **Programming**
 
-- 📫 How to reach me **kag705000@gmail.com**
-
 - ⚡ Fun fact **I think I can change your thinking**
 
 <h3 align="left">Connect with me:</h3>
